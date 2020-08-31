@@ -12,4 +12,6 @@
 
 [28/8/2020 recording session link](https://transcripts.gotomeeting.com/#/s/149439c0bc3f679541c7561113cee8db5f6e540aebb1c8e0a763a4ba94c6deb8)
 
-[29/8/2020 recording session link](https://transcripts.gotomeeting.com/#/s/789208ea497a94562522d6f1507eb35b87199387dba60d2311658403197db2ac) 
+[29/8/2020 recording session link](https://transcripts.gotomeeting.com/#/s/789208ea497a94562522d6f1507eb35b87199387dba60d2311658403197db2ac)
+
+[31/8/2020 recording session link](https://transcripts.gotomeeting.com/#/s/36fa324db87ac777284fd0463a1182b2b1e7019227fa233ff558af9e4bf9c0b5)
