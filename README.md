@@ -21,3 +21,5 @@
 [02/9/2020 recording session link](https://transcripts.gotomeeting.com/#/s/6baca541ba7fc4a2fe1da56f63bb71bc3a51f181cf4816a77fef56c0299857d6)
 
 [Diabetes dataset](https://drive.google.com/file/d/1KqYtbU1kgrzkHxf_5GxaaJcr4uqBGg2-/view?usp=sharing)
+
+[03/9/2020 recording session link](https://transcripts.gotomeeting.com/#/s/d6e388d74298f627ec45437fdf58c0913a9531bfefb556983aa42014e1d73707)
